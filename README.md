@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I am Maksim (although prefer Maxim). I like coding, hiking and pets. 
+
+Reach out to me if you think I can help you with anything 😉.
+
 <!--
 **masyahook/masyahook** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
