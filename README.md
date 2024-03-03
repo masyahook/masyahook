@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am Maksim (or Maxim). I like coding, hiking and pets. 
+I am Maxim or masya. I like coding, hiking and pets. 
 
 Reach out to me 🚀
 
